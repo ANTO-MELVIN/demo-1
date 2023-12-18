@@ -1,1 +1,2 @@
-be motive and spotive
+be motive and spotive 
+nanbargalay just chill
